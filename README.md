@@ -1,2 +1,2 @@
-# ntrw
-New Tab Random Wallpaper
+# NTRW
+New Tab Random (Anime) Wallpaper
